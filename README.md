@@ -5,4 +5,3 @@
 - 🤔 I’m looking for help with time management.
 - 📫 How to reach me: yellowlilbooty@yahoo.com
 - ⚡ Fun fact: My id lists me as 5'10" in North Carolina but 5'11" in California 
--->
